@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MasterCrafter29
+- 👀 I’m interested in Actuarial sicence, AI and Coding
+- 🌱 I’m currently learning Actuarial science
